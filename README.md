@@ -127,3 +127,4 @@ Other good resources for free illustrations:
 
 Let me know if you have a better resource I’ve not found yet.
 
+If you liked this resource, you can always buy me coffe: https://www.buymeacoffee.com/jana
